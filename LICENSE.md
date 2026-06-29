@@ -1,4 +1,4 @@
-#  
+#  sol's rng top Script is the best sol's rng Script, featuring auto-heal and aimbot. Safe and powerful for all your needs.
 
 
 
